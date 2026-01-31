@@ -1,0 +1,1 @@
+# individual-assinment-for-applied-statistics
